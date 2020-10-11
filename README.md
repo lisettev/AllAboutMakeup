@@ -18,6 +18,6 @@ https://www.sephora.com/product/the-porefessional-face-primer-P264900
 
 - If you're looking to not use a foundation or have a light layer of makeup to conceal a few things, I would reccommend only using concealer in the certain areas of your face you want to cover in order to not have a heavy look. My favorite concealers include the Too faced Born This Way Sculpting Concealer and the Glossier Stretch Concealer. Depending on how much coverage you actually want, the Too Faced would work a lot better due to it being buildable depending on how much is applied. The Glossier Stretch is very easy to apply and covers any problem areas and certain discolored areas very easily. Both are very hydrating and natural. 
 
-![Glossier.Concealer](https://github.com/lisettev/AllAboutMakeup/Glossier_concealer_01.jpg)
+![Glossier.Concealer](Glossier_concealer_01.jpg)
 
-![Milk Cheek Blush Duo](https://github.com/lisettev/AllAboutMakeup/milk%20cheek%20lip%20duo.JPG) 
+![Milk Cheek Blush Duo](milk%20cheek%20lip%20duo.JPG) 
