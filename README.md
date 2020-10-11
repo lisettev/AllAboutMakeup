@@ -11,7 +11,7 @@ Here below is a list of products that you could include before and after to help
 **3. Setting Spray: Setting spray is the last thing you would need after you complete your makeup to freshen your face and to help keep any areas from creasing (look unblended) or to keep it on for longer periods of time.**
 
 Linked below is a list of the number one primer I would reccomend - 
-(https://www.sephora.com/product/the-porefessional-face-primer-P264900) 
+For more details see [Sephora Site](https://www.sephora.com/product/the-porefessional-face-primer-P264900/) 
 
 ## New Makeup Products I Reccommend Trying
 - If you're looking for a more natural and hydrated look for your face, the first thing I would reccommend is using more cream products, especially cream blush. The newest product I've gotten and found to work the easiest and look best, is the Milk Lip+Cheek Duo. 
