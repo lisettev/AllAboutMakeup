@@ -17,4 +17,4 @@ https://www.sephora.com/product/the-porefessional-face-primer-P264900
 
 ![Image of Glossier.Concealer](https://github.com/lisettev/AllAboutMakeup/blob/main/Glossier_concealer_01.jpg)
 
-![Image of Milk Cheek Blush Duo](https://github.com/lisettev/AllAboutMakeup/blob/main/Glossier_concealer_01.jpg)
+![Image of Milk Cheek Blush Duo](https://github.com/lisettev/AllAboutMakeup/blob/main/milk%20cheek%20lip%20duo.JPG) 
