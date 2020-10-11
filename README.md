@@ -1,4 +1,4 @@
-**#Reccomendations On The Best Makeup Products and How to Approach Your Routine**
+**# Reccomendations On The Best Makeup Products and How to Approach Your Routine**
 
 When it comes to doing your makeup and what steps are best to include in your routine, I would say everyone has their own favorite products but including a few basic specific products will help your makeup look better. 
 
@@ -10,10 +10,11 @@ Here below is a list of products that you could include before and after to help
 Linked below is a list of the number one primer I would reccomend - 
 https://www.sephora.com/product/the-porefessional-face-primer-P264900 
 
-**##New Makeup Products I Reccommend Trying**
+**## New Makeup Products I Reccommend Trying**
 - If you're looking for a more natural and hydrated look for your face, the first thing I would reccommend is using more cream products, especially cream blush. The newest product I've gotten and found to work the easiest and look best, is the Milk Lip+Cheek Duo. 
 
 - If you're looking to not use a foundation or have a light layer of makeup to conceal a few things, I would reccommend only using concealer in the certain areas of your face you want to cover in order to not have a heavy look. My favorite concealers include the Too faced Born This Way Sculpting Concealer and the Glossier Stretch Concealer. Depending on how much coverage you actually want, the Too Faced would work a lot better due to it being buildable depending on how much is applied. The Glossier Stretch is very easy to apply and covers any problem areas and certain discolored areas very easily. Both are very hydrating and natural. 
 
 ![Image of Glossier.Concealer](https://github.com/lisettev/AllAboutMakeup/blob/main/Glossier_concealer_01.jpg)
 
+![Image of Milk Cheek Blush Duo](https://github.com/lisettev/AllAboutMakeup/blob/main/Glossier_concealer_01.jpg)
